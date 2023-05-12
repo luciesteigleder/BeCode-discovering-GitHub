@@ -36,9 +36,9 @@ General | Technical | Creative
 ||  
 || ~~~~~~~~~~
 
-## Things I look forward to
-[ ] Finishing a first (big) project
-[ ] Finishing a project that makes me proud
+## Things I look forward to  
+[ ] Finishing a first (big) project  
+[ ] Finishing a project that makes me proud  
 [ ] At least one day that feels like summer in Brussels
 
 
