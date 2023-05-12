@@ -30,10 +30,10 @@ General | Technical | Creative
 
 ### Vertigo
 
- 🙋‍♀️ *<- me, who's afraid of height, not feeling so well in this situation*
-||
-||
-||
+ 🙋‍♀️ *<- me, who's afraid of height, not feeling so well in this situation*  
+||  
+||  
+||  
 || ~~~~~~~~~~
 
 ## Things I look forward to
